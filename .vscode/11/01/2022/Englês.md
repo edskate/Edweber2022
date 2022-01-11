@@ -43,3 +43,19 @@
 */div class circle*/
 uma nova atualização
 (2022)
+
+* 11/01/2022
+
+-time:18:40
+
+-They paid separately(Eles pagaram separadamente.)
+
+-You said you wanted more responsibility.(Você disse que queria mais responsabilidade.)
+
+-Let's go home (Vamos para casa)
+
+-are you read (Você está pronto)
+
+We can start our rehearsal (Podemos iniciar nosso ensaio)
+
+-let´s go to  class (Vamos na aula )
