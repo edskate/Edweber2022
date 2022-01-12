@@ -69,9 +69,3 @@ We can start our rehearsal (Podemos iniciar nosso ensaio)
 -believe (acredite)
   
 -We can (Podemos)
-
--
-
-
-
-
