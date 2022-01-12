@@ -48,6 +48,10 @@ uma nova atualização
 
 -time:18:40
 
+* Mais frases.
+
+11/01/2022/(22:45)
+
 -They paid separately(Eles pagaram separadamente.)
 
 -You said you wanted more responsibility.(Você disse que queria mais responsabilidade.)
@@ -59,3 +63,15 @@ uma nova atualização
 We can start our rehearsal (Podemos iniciar nosso ensaio)
 
 -let´s go to  class (Vamos na aula )
+
+-We count on your contribution.(Contamos com a sua contribuição.)
+
+-believe (acredite)
+  
+-We can (Podemos)
+
+-
+
+
+
+
